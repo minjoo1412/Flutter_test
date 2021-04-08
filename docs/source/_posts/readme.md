@@ -1,0 +1,1 @@
+![](/workspace/test/blog/source/_posts/wp2570965.jpg)
